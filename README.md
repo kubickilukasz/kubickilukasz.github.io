@@ -1,1 +1,0 @@
-# kubickilukasz.github.io
